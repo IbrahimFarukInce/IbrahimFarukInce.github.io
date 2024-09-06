@@ -1,1 +1,0 @@
-# IbrahimFarukInce.github.io
